@@ -1,16 +1,20 @@
-## Hi there 👋
+<img width="735" height="521" alt="24fd4d2c3fd05458aa2086d7213801d1" src="https://github.com/user-attachments/assets/86a7fa47-cd82-4003-92c5-f6cbf7e34b15" />
 
-<!--
-**Cosmossweettreat/Cosmossweettreat** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+  Cosmo the pastry .
+ 
+ ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
+ 
+  ╰┈➤ About me!!
+★ 
 
-Here are some ideas to get you started:
+ ˘  I am currently 17 !
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+˘ I am a Cosmo fictionkin!
+
+˘ My current interests are dandy's world, Hamilton, Fnaf, ddlc, pony town, and gnb(Roblox game).
+
+˘ I love making friends though, I am not the best to vent to because I'm not the best at comfort.
+
+˘ anyone under the proshipping umbrella DNI. at all cost.
+
+𓍢 . ⠀𓂃  That's all! ⠀◞
