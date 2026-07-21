@@ -18,3 +18,5 @@
 ˘ anyone under the proshipping umbrella DNI. at all cost.
 
 𓍢 . ⠀𓂃  That's all! ⠀◞
+
+ ![visitors](https://komarev.com/ghpvc/?username=Cosmossweettrat&label=pastrys%20baked%20&labelColor=d994e5&countcolor=d994e5&style=plastic)
