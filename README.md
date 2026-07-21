@@ -1,7 +1,9 @@
 <img width="735" height="521" alt="24fd4d2c3fd05458aa2086d7213801d1" src="https://github.com/user-attachments/assets/86a7fa47-cd82-4003-92c5-f6cbf7e34b15" />
 
-  Cosmo the pastry .
+  3 , Cosmo the pastry .
  
+  ![visitors](https://komarev.com/ghpvc/?username=Cosmossweettrat&label=pastrys%20baked%20&labelColor=d994e5&countcolor=d994e5&style=plastic)
+
  ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
  
   ╰┈➤ About me!!
@@ -19,4 +21,4 @@
 
 𓍢 . ⠀𓂃  That's all! ⠀◞
 
- ![visitors](https://komarev.com/ghpvc/?username=Cosmossweettrat&label=pastrys%20baked%20&labelColor=d994e5&countcolor=d994e5&style=plastic)
+
