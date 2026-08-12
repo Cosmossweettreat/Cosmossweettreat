@@ -1,6 +1,10 @@
-<img width="735" height="521" alt="24fd4d2c3fd05458aa2086d7213801d1" src="https://github.com/user-attachments/assets/86a7fa47-cd82-4003-92c5-f6cbf7e34b15" />
 
-  Cosmo the pastry.
+
+
+<img width="799" height="599" alt="2026_08_12_0kj_Kleki" src="https://github.com/user-attachments/assets/0a26a883-1be0-4619-a08a-dd2eef1166f5" />
+
+
+(made by the one and only Pawz-bit / cherri ..🤯🤯🤯🤯
  
   ![visitors](https://komarev.com/ghpvc/?username=Cosmossweettrat&label=pastrys%20baked%20&labelColor=d994e5&countcolor=d994e5&style=plastic)
 
