@@ -23,7 +23,7 @@ $${\color{#995449}˘My\ current\ interests\ are\ dandy's\ world,\ Hamilton,\ Fna
 
 $${\color{#c6fd8a}˘I\ love\ making\ friend's\ though,\ I'm\ not\ the\ best\ to\ vent\ to\ because\ I\ struggle\ To\ comfort.}$$ 
 
-$${\color{#e883f8}˘Anyone\ who\ supports\ proshipping\ or\ anything\ under\ the\ umbrella\ DNI.}$$
+$${\color{#e883f8}˘Anyone\ who\ supports\ proshipping\ or\ darkshipping\ maybe\ anything\ under\ the\ umbrella\ DNI.}$$
 
 $${\color{#82fdd3}𓍢 . ⠀𓂃  That's\ all!◞}$$
 
