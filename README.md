@@ -5,10 +5,7 @@
 
 $${\color{#98d9fc}}$$
 
-995449 brown
-c6fd8a green
-e883f8 purple
-82fdd3 blue
+
 
 made by the one and only Pawz-bit / cherri ..🤯🤯🤯🤯
  
